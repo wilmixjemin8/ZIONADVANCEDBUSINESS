@@ -29,13 +29,13 @@ Which  is  used to overtake  the competitors..
 
 
 
-b)WABS consists of REMO,ROMOS , and Mice. 
+b)ZABS consists of REMO,ROMOS , and Mice. 
 here REMO is the control unit. 
 
 
 
 
-Hence it's WABS Business structure is kept secret .
+Hence it's ZABS Business structure is kept secret .
 
 
 
