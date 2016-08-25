@@ -10,7 +10,7 @@ ZIONADVANCEDBUSINESS
 ZIONADVANCEDBUSINESS  is  invented  in year  2016  by   wilmix  jemin  j.
 
 
-
+It  is    Ranked   as   Z'''''''''''''''''''''''''''''''''''''''''''''''''' and  so.on (infinitive).
 
 ZIONAdvancedBusiness  is  meant 
 
